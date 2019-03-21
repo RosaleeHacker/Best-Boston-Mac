@@ -17,4 +17,6 @@ A ranking list of the best mac n cheese in the Boston area
 
 * **Boston Burger Company, 7/10** -- Their mac n cheese is served as the Mac Attack, a mac n cheese infused burger. This burger contains a slice of fried mac n cheese on top of the patty. It’s likely that the mac n cheese will fall off if you’re bad at containment. 
 
-* **Max Brenner, 5/10** -- The cheese is bland and uses box noodles. The only thing interesting about this dish is that it’s served with tomatoes. If you're going to go here, stick to the chocolate.
+* **The Kinsale, 5/10** -- For a pub that has an entire section on their menu dedicated to mac n cheese, their isn't much variety going on there. I ordered the dish that came with vegetables, which added a nice crounch to each bite. It comes backed with bread crumbs in a large bowl, which pairs well with their bread. It's a simple cheese sauce, probably only one type, which is sad.
+
+* **Max Brenner, 4/10** -- The cheese is bland and uses box noodles. The only thing interesting about this dish is that it’s served with tomatoes. If you're going to go here, stick to the chocolate.
